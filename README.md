@@ -1,2 +1,2 @@
-# yufais
-pmr wira bhakti karya
+# Yufais
+pmr wira bhakti karyas
